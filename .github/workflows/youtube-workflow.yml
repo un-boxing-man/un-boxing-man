@@ -1,4 +1,3 @@
-youtube-workflow.yml
 name: Latest YouTube Videos
 on:
   schedule:
