@@ -26,11 +26,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [day 1 in the Ocean w/ Wither Prince | RAFT](https://www.youtube.com/watch?v=RgM1C_omQow)
 - [Halloween candy delivering contraption!!](https://www.youtube.com/watch?v=o3nSDzLjPCs)
 - [idot trys to play #DualUniverse](https://www.youtube.com/watch?v=3NLbGBnZy1I)
 - [2020 Hot Wheels Advent Calendar UNBOXING!!!](https://www.youtube.com/watch?v=j5zMuImOw6Q)
 - [idot trys to play dnd](https://www.youtube.com/watch?v=DjuF0AzHWwU)
-- [Flying around my area](https://www.youtube.com/watch?v=zAY-cK7f7R8)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/unboxingman2004)
