@@ -27,10 +27,10 @@
 
 <!-- YOUTUBE:START -->
 - [geting beter dirt (maby) Minecraft SkyFactory 4 Multiplayer](https://www.youtube.com/watch?v=aEhnZN3yBDY)
+- [playing rust 2x server](https://www.youtube.com/watch?v=VBv97XTKfsI)
 - [diamond trees????!!! mincraft SkyFactory 4 Multiplayer](https://www.youtube.com/watch?v=GSowPcOkUbA)
 - [starting mincraft SkyFactory 4 Multiplayer](https://www.youtube.com/watch?v=L2LEouQ75iU)
 - [day 1 in the Ocean w/ Wither Prince | RAFT](https://www.youtube.com/watch?v=RgM1C_omQow)
-- [Halloween candy delivering contraption!!](https://www.youtube.com/watch?v=o3nSDzLjPCs)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/unboxingman2004)
