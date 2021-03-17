@@ -26,11 +26,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
-- [Satisfactory Update 4 Release](https://www.youtube.com/watch?v=wHOZjOlZAcc)
 - [new membership's join now?](https://www.youtube.com/watch?v=SGgg1GPq5bw)
 - [landing at pdx || Microsoft Flight Sim 2020 #shorts](https://www.youtube.com/watch?v=jxQpfUEHWxY)
 - [driving in snow](https://www.youtube.com/watch?v=2ryGCw2zbpo)
 - [playing Phasmophobia idk lol](https://www.youtube.com/watch?v=fWCNZxkGMFU)
+- [playing rust 2x server](https://www.youtube.com/watch?v=VBv97XTKfsI)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/unboxingman2004)
