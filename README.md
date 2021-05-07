@@ -27,10 +27,10 @@
 
 <!-- YOUTUBE:START -->
 - [Satisfactory Update 4 Release](https://www.youtube.com/watch?v=wHOZjOlZAcc)
+- [Flight Simulator flying from KPDX to KDCA](https://www.youtube.com/watch?v=zFdn8qe2KRY)
 - [new membership's join now?](https://www.youtube.com/watch?v=SGgg1GPq5bw)
 - [landing at pdx || Microsoft Flight Sim 2020 #shorts](https://www.youtube.com/watch?v=jxQpfUEHWxY)
 - [driving in snow](https://www.youtube.com/watch?v=2ryGCw2zbpo)
-- [playing Phasmophobia idk lol](https://www.youtube.com/watch?v=fWCNZxkGMFU)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/unboxingman2004)
