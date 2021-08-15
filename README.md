@@ -28,9 +28,9 @@
 <!-- YOUTUBE:START -->
 - [Frostpunk ending](https://www.youtube.com/watch?v=dEc_BSZF7tM)
 - [un boxing the oculus quest 2](https://www.youtube.com/watch?v=vNyl2GBf6Aw)
+- [sinking ships in BATTLESHIP](https://www.youtube.com/watch?v=LMvE1JZWB3E)
 - [Flight Simulator flying from KPDX to KDCA](https://www.youtube.com/watch?v=zFdn8qe2KRY)
 - [Satisfactory Update 4 Release](https://www.youtube.com/watch?v=wHOZjOlZAcc)
-- [new membership's join now?](https://www.youtube.com/watch?v=SGgg1GPq5bw)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/unboxingman2004)
