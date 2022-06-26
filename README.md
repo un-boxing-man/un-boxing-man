@@ -26,11 +26,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [flying the darkstar from kpdx](https://www.youtube.com/watch?v=Dj3kP2uxIuM)
+- [void drinking water in slow mo](https://www.youtube.com/watch?v=_wFOH6j6oy8)
+- [unboxing the Netgear nighthawk Wi-Fi 6 mesh](https://www.youtube.com/watch?v=CoEFepqClSI)
+- [thieving pirates](https://www.youtube.com/watch?v=RGkqXWb5bvI)
 - [un boxing the XBOX XS](https://www.youtube.com/watch?v=mtFqTm_weQ8)
-- [RIP space ball one/BATTLESHIP](https://www.youtube.com/watch?v=LMvE1JZWB3E)
-- [Frostpunk ending](https://www.youtube.com/watch?v=dEc_BSZF7tM)
-- [un boxing the oculus quest 2](https://www.youtube.com/watch?v=vNyl2GBf6Aw)
-- [Flight Simulator flying from KPDX to KDCA](https://www.youtube.com/watch?v=zFdn8qe2KRY)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/unboxingman2004)
