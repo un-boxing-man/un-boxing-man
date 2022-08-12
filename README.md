@@ -28,11 +28,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [flying the H-4 hercules from KPDX](https://www.youtube.com/watch?v=hFNt5retRms)
 - [flying the darkstar from kpdx](https://www.youtube.com/watch?v=Dj3kP2uxIuM)
 - [void drinking water in slow mo](https://www.youtube.com/watch?v=_wFOH6j6oy8)
 - [unboxing the Netgear nighthawk Wi-Fi 6 mesh](https://www.youtube.com/watch?v=CoEFepqClSI)
 - [thieving pirates](https://www.youtube.com/watch?v=RGkqXWb5bvI)
-- [un boxing the XBOX XS](https://www.youtube.com/watch?v=mtFqTm_weQ8)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/unboxingman2004)
