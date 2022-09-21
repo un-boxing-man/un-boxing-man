@@ -28,9 +28,9 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
-- [trying construction sim &lpar;the new one&rpar;](https://www.youtube.com/watch?v=uczby-GzDEE)
+- [trying construction sim &lpar;the new one&rpar; Part 2](https://www.youtube.com/watch?v=QPHiRy6RTyQ)
+- [trying construction sim &lpar;the new one&rpar; Part 1](https://www.youtube.com/watch?v=uczby-GzDEE)
 - [trying construction sim &lpar;the new one&rpar;](https://www.youtube.com/watch?v=eCjgDBBJd6U)
-- [trying construction sim &lpar;the new one&rpar;](https://www.youtube.com/watch?v=QPHiRy6RTyQ)
 - [flying the H-4 hercules from KPDX](https://www.youtube.com/watch?v=hFNt5retRms)
 - [flying the darkstar from kpdx](https://www.youtube.com/watch?v=Dj3kP2uxIuM)
 <!-- YOUTUBE:END -->
