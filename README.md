@@ -28,11 +28,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [new packages! from Amazon vine](https://www.youtube.com/watch?v=42eWdVsZubM)
 - [flying the Hughes H-4 Hercules AKA the spruce goose](https://www.youtube.com/watch?v=hFNt5retRms)
 - [trying construction sim &lpar;the new one&rpar; Part 2](https://www.youtube.com/watch?v=QPHiRy6RTyQ)
 - [trying construction sim &lpar;the new one&rpar; Part 1](https://www.youtube.com/watch?v=uczby-GzDEE)
 - [flying the darkstar from kpdx](https://www.youtube.com/watch?v=Dj3kP2uxIuM)
-- [void drinking water in slow mo](https://www.youtube.com/watch?v=_wFOH6j6oy8)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/unboxingman2004)
