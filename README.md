@@ -28,11 +28,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [unboxing the #amazonvine delivery day 3](https://www.youtube.com/watch?v=jO-ik7l8Veo)
 - [day 3 of packages from #amazonvine](https://www.youtube.com/watch?v=-feXHzOY_VQ)
 - [vine packages day 2 #amazonvine](https://www.youtube.com/watch?v=WpahyTbRVII)
 - [new packages! from Amazon vine](https://www.youtube.com/watch?v=42eWdVsZubM)
 - [flying the Hughes H-4 Hercules AKA the spruce goose](https://www.youtube.com/watch?v=hFNt5retRms)
-- [trying construction sim &lpar;the new one&rpar; Part 2](https://www.youtube.com/watch?v=QPHiRy6RTyQ)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/unboxingman2004)
