@@ -28,7 +28,7 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
-- [vine days 8&amp;9 #amazonvine #amazon](https://www.youtube.com/watch?v=Xw-anQFT6-Y)
+- [Vine Packages days 8&amp;9 #amazonvine #amazon](https://www.youtube.com/watch?v=Xw-anQFT6-Y)
 - [vine packages day 7 #amazonvine and #unboxing](https://www.youtube.com/watch?v=t8HM05V5dxM)
 - [new lego delivery  #lego #legoideas](https://www.youtube.com/watch?v=_gsobXmB9ow)
 - [vine packages day 6 #amazonvine and #unboxing](https://www.youtube.com/watch?v=8alysoTiFA4)
