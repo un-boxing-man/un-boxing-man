@@ -28,11 +28,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [vine Packages day 15 #amazonvine](https://www.youtube.com/watch?v=yz6H4p15UwE)
+- [un boxing the ender 3 V2 #3dprinter](https://www.youtube.com/watch?v=T-tbyW8WF3c)
 - [vine &amp; ebay packages day 14 #amazonvine #ebay](https://www.youtube.com/watch?v=tRQ9afAbK4o)
 - [vine Packages day 13 #amazonvine](https://www.youtube.com/watch?v=5XEPOIrVm0c)
 - [vine Packages day 12 #amazonvine](https://www.youtube.com/watch?v=MbgMi_BVbWE)
-- [vine Packages day 11 #amazonvine](https://www.youtube.com/watch?v=MSeSxkQvnqk)
-- [vine Packages day 10 #amazonvine](https://www.youtube.com/watch?v=rDlhKhpgpq8)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/unboxingman2004)
