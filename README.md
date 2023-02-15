@@ -28,11 +28,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Vine Packages day 29 #amazonvine](https://www.youtube.com/watch?v=fWvjax_-AAU)
 - [vine Packages day 28 #amazonvine](https://www.youtube.com/watch?v=BnVGSKp1ERg)
 - [vine Packages day 27 #amazonvine](https://www.youtube.com/watch?v=giKLT1JQHt4)
 - [vine Packages day 26 #amazonvine](https://www.youtube.com/watch?v=CCkjjBzX3nc)
 - [vine Packages day 25 #amazonvine](https://www.youtube.com/watch?v=qjjtLfRLt9g)
-- [vine Packages day 24 #amazonvine](https://www.youtube.com/watch?v=aJqyJ60WTn0)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/unboxingman2004)
