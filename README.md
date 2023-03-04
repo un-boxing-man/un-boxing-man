@@ -28,11 +28,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [vine Packages day 43 #amazonvine](https://www.youtube.com/watch?v=87VcLB1z5p0)
 - [vine Packages day 42 #amazonvine](https://www.youtube.com/watch?v=0aNDB2DIC5g)
 - [vine Packages day 41 #amazonvine](https://www.youtube.com/watch?v=c15X0Vl0Zc8)
 - [Un Boxing The Nvidia RTX 3060 #3060nividia](https://www.youtube.com/watch?v=7Js_cmYHMZc)
 - [Vine packages day 40 #amazonvine](https://www.youtube.com/watch?v=dN0un75wBFI)
-- [Vine packages day 39 #amazonvine](https://www.youtube.com/watch?v=z0AAeuzCP8o)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/unboxingman2004)
