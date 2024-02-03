@@ -28,7 +28,7 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
-- [Stuck Prius in snow? #winter #snow #automobile](https://www.youtube.com/watch?v=ENvsQlMJDUQ)
+- [Stuck Toyota in snow? #winter #snow #automobile](https://www.youtube.com/watch?v=ENvsQlMJDUQ)
 - [driving in snow p7](https://www.youtube.com/watch?v=_v9o5Oq56cY)
 - [driving in snow p 6](https://www.youtube.com/watch?v=U0pyL-8Zpbw)
 - [driving in snow p5](https://www.youtube.com/watch?v=fLJQxupTV0k)
