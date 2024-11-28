@@ -28,11 +28,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Unboxing the Microsoft light simulator 2024 limited collector&#39;s edition|#msfs2024](https://www.youtube.com/watch?v=hv7uF7ruZq4)
 - [Un boxing the EcoFlow Delta 2](https://www.youtube.com/watch?v=s8nk_VPxLLw)
 - [2024 Hot Wheels Advent Calendar UNBOXING!!!](https://www.youtube.com/watch?v=LQb2HlRudOA)
 - [Un Boxing The DJI AIR 3S FLY MORE | #drone #dji](https://www.youtube.com/watch?v=Pytw4-wT9wc)
 - [Un Boxing The Cyber Power Battery Backup | UPS |1350 VA 810 Watts](https://www.youtube.com/watch?v=OsDY0N1OVT4)
-- [vine pakages day 126 #amazonvine](https://www.youtube.com/watch?v=nn3108BzEoE)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/unboxingman2004)
