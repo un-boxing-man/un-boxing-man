@@ -28,11 +28,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Un Boxing the ROG Strix G gaming laptop| with Dragon and the cat |#rogstrix #laptop #cat #roggaming](https://www.youtube.com/watch?v=vWlINwE1AyQ)
 - [Unboxing the Microsoft light simulator 2024 limited collector&#39;s edition|#msfs2024](https://www.youtube.com/watch?v=hv7uF7ruZq4)
 - [Un boxing the EcoFlow Delta 2](https://www.youtube.com/watch?v=s8nk_VPxLLw)
 - [2024 Hot Wheels Advent Calendar UNBOXING!!!](https://www.youtube.com/watch?v=LQb2HlRudOA)
 - [Un Boxing The DJI AIR 3S FLY MORE | #drone #dji](https://www.youtube.com/watch?v=Pytw4-wT9wc)
-- [Un Boxing The Cyber Power Battery Backup | UPS |1350 VA 810 Watts](https://www.youtube.com/watch?v=OsDY0N1OVT4)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/unboxingman2004)
