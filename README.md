@@ -28,11 +28,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Un Boxing The DJI Avata 2 Fly More Combo | #drone #djiavata2 #unboxingvideo](https://www.youtube.com/shorts/IxZL662Wews)
 - [Un Boxing The DJI Flip Fly More Bundle | #drone #dji #djiflip](https://www.youtube.com/shorts/YVtgqdJ_lRY)
 - [Un Boxing the ROG Strix G18 gaming laptop| with Dragon and the cat|#rogstrix #laptop #cat #roggaming](https://www.youtube.com/shorts/vWlINwE1AyQ)
 - [Unboxing the Microsoft Flight Simulator 2024 limited collector&#39;s edition|#msfs2024](https://www.youtube.com/shorts/hv7uF7ruZq4)
 - [Un boxing the EcoFlow Delta 2](https://www.youtube.com/shorts/s8nk_VPxLLw)
-- [2024 Hot Wheels Advent Calendar UNBOXING!!!](https://www.youtube.com/watch?v=LQb2HlRudOA)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/unboxingman2004)
