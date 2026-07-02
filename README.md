@@ -28,11 +28,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Un Boxing The EcoFlow Wave 3 Portable Air Conditioner | #ecoflow #unboxing #wave3](https://www.youtube.com/shorts/D9vAIylBoyY)
 - [Un Boxing The Steelseries Arctis Nova 7 Headphones | #steelseries #cat #unboxing](https://www.youtube.com/shorts/s3HWHP6xp9I)
 - [Un Boxing The predator 5000 dual fuel inverter generator | #generator  #unboxing](https://www.youtube.com/shorts/qN_QrY3rctM)
 - [Un Boxing The DJI Mic 3 | #dji #djimic3 #unboxingvideo #unboxing #tech](https://www.youtube.com/shorts/LqUf1NdHXDA)
 - [Un Boxing The turtle Beach Velocity One Flight/Rudder/Stand | #flight #velocityone #unboxing](https://www.youtube.com/shorts/vOsR3C4tco0)
-- [Un Boxing The DJI Avata 2 Fly More Combo | #drone #djiavata2 #unboxingvideo](https://www.youtube.com/shorts/IxZL662Wews)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/unboxingman2004)
